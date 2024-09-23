@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @lauhzm
-- 🌱 I’m currently learning programming
 - 😄 Pronouns: She/Her
 
 
